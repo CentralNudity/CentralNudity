@@ -25,9 +25,12 @@ like your content removed or added to this list, please contact us.
 This section provides a list of cosplayers and their albums. Clicking on a cosplayer's name will take you to a Markdown file with all the albums they have published on Reddit.
 Here's the list:
 
-- [Ain Nguyen](Ain%20Nguyen.md)
-- [Alina Becker](Alina%20Becker.md)
-- [Aqua 水淼](Aqua%20水淼.md)
+* [Ain Nguyen](Ain%20Nguyen.md)
+* [Alina Becker](Alina%20Becker.md)
+* [Aqua 水淼](Aqua%20水淼.md)
+* [Azami](Azami.md)
+* [Yuumeilyn](Yuumeilyn.md)
+* [ZinieQ](ZinieQ.md)
 
 ## Requesting Album Deletion
 
@@ -38,4 +41,5 @@ If you are a copyright holder of an album posted on Reddit and would like it rem
 3. In the message, provide context as to why you would like the album removed. Include the link to the post containing the album to help streamline the process.
 4. Please be precise and clear in your communication to avoid any misunderstanding.
 
-We respect everyone's rights, and any content posted without the consent of the owner can be reported to the moderators for further action. Please ensure you have all the required evidence before reaching out for a smoother process.
+We respect everyone's rights, and any content posted without the consent of the owner can be reported to the moderators for further action. Please ensure you have all the required
+evidence before reaching out for a smoother process.
