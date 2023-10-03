@@ -25,9 +25,9 @@ like your content removed or added to this list, please contact us.
 This section provides a list of cosplayers and their albums. Clicking on a cosplayer's name will take you to a Markdown file with all the albums they have published on Reddit.
 Here's the list:
 
-- [Ain Nguyen](Ain Nguyen.md)
-- [Alina Becker](Alina Becker.md)
-- [Aqua 水淼](Aqua 水淼.md)
+- [Ain Nguyen](Ain%20Nguyen.md)
+- [Alina Becker](Alina%20Becker.md)
+- [Aqua 水淼](Aqua%20水淼.md)
 
 ## Requesting Album Deletion
 
