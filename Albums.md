@@ -749,7 +749,7 @@
 | 747  | [Nyako 喵子 - Ganyu Succubus](https://photos.google.com/lr/album/AMvZUrW2SfJp3W1_oX-BD5B-K_yHqn3VjjFFFRUmaarbUJfl5jfnqTSEQHyuYXd1vs0qZCs1tKgN)                                         | 76    | &cross; |
 | 748  | [Nyako 喵子 - Saint Louis](https://photos.google.com/lr/album/AMvZUrVS5-wS6cReaX0l5x7TO3SeR-llrV13oc2SmKdh40yuwYBj2MJVajruxOS79XhM7OsdCkPf)                                            | 48    | &cross; |
 | 749  | [Octokuro - Cow Girl](https://photos.google.com/lr/album/AMvZUrW5BFGOtI5V9i3DU72U0yd6cD1SlRrsPbf5UmCIxZ5Ln3-8qFtvU7nX-PJvKpLuMeXTjqAK)                                               | 28    | &cross; |
-| 750  | [Octokuro - Lucy](https://photos.google.com/lr/album/AMvZUrXfqq9pXiwwPYh1OuPgtaLtq3IZvYmOsFxGpYoHWMcIhJglVuaJ95ZT1COQow5RMyv4_nsn)                                                   | 18    | &cross; |
+| 750  | [Octokuro - Lucy](https://photos.google.com/lr/album/AMvZUrXfqq9pXiwwPYh1OuPgtaLtq3IZvYmOsFxGpYoHWMcIhJglVuaJ95ZT1COQow5RMyv4_nsn)                                                   | 18    | &check; |
 | 751  | [Octokuro - Lucy (Cyberpunk Edgerunners)](https://photos.google.com/lr/album/AMvZUrWovvQ7M2gJ8tkZBgHJhS_q4onOkAwyoAOjjHCbdAAtgEfjsP8h5Pa5G379_GTmBoWr34hC)                           | 18    | &cross; |
 | 752  | [Octokuro - Widowmaker Summer](https://photos.google.com/lr/album/AMvZUrUXFCrsOfPJJyLEw1uywcFWFR_Y5QgdRCpJtzjPoAp3cPQ9jaOXHmVva6MuD0Zn2ou10xQH)                                      | 24    | &cross; |
 | 753  | [Octokuro - Zero Two](https://photos.google.com/lr/album/AMvZUrUKXQCjb7mpZxyWpmU8wz_mAlxqkUXhwP2Gz2RzGFlhVZiYNEgqHJc6cEgli3NSzbHZUZdb)                                               | 15    | &cross; |
