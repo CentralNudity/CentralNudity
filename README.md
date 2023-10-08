@@ -29,6 +29,7 @@ Here's the list:
 * [Alina Becker](Alina%20Becker.md)
 * [Aqua 水淼](Aqua%20水淼.md)
 * [Azami](Azami.md)
+* [Byoru](Byoru.md)
 * [Ely](Ely.md)
 * [Minichu](Minichu.md)
 * [Octokuro](Octokuro.md)
