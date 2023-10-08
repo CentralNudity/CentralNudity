@@ -9,8 +9,8 @@
     * [Byoru - Alice Part 1](https://www.reddit.com/r/CentralNudity/comments/1735mdj/byoru_alice_part_12/)
     * [Byoru - Alice Part 2](https://www.reddit.com/r/CentralNudity/comments/1735olq/byoru_alice_part_22/)
 * Byoru - Marin Kitagawa Red Lingerie
-  * [Byoru - Marin Kitagawa Red Lingerie Part 1](https://www.reddit.com/r/CentralNudity/comments/15q2cu8/byoru_marin_kitagawa_red_lingerie_part_i/)
-  * [Byoru - Marin Kitagawa Red Lingerie Part 2](https://www.reddit.com/r/CentralNudity/comments/15qogz5/byoru_marin_kitagawa_red_lingerie_part_ii/)
+    * [Byoru - Marin Kitagawa Red Lingerie Part 1](https://www.reddit.com/r/CentralNudity/comments/15q2cu8/byoru_marin_kitagawa_red_lingerie_part_i/)
+    * [Byoru - Marin Kitagawa Red Lingerie Part 2](https://www.reddit.com/r/CentralNudity/comments/15qogz5/byoru_marin_kitagawa_red_lingerie_part_ii/)
 * Byoru - Ada Wong
     * [Byoru - Ada Wong Part 1](https://www.reddit.com/r/CentralNudity/comments/164lg76/byoru_ada_wong_part_13/)
     * [Byoru - Ada Wong Part 2](https://www.reddit.com/r/CentralNudity/comments/1652w55/byoru_ada_wong_part_23/)
@@ -27,8 +27,6 @@
 * Byoru - Boa Hancock
     * [Byoru - Boa Hancock Part 1](https://www.reddit.com/r/CentralNudity/comments/15lc1sw/byoru_boa_hancock_part_i/)
     * [Byoru - Boa Hancock Part 2](https://www.reddit.com/r/CentralNudity/comments/15lc2om/byoru_boa_hancock_part_ii/)
-* Byoru - Marin Kitagawa Red Lingerie
-    * [Part 2](https://www.reddit.com/r/CentralNudity/comments/15qogz5/byoru_marin_kitagawa_red_lingerie_part_ii/)
 * Byoru - Lucy
     * [Byoru - Lucy Part 1](https://www.reddit.com/r/CentralNudity/comments/16hre6z/byoru_lucy_set_2_part_13/)
     * [Byoru - Lucy Part 2](https://www.reddit.com/r/CentralNudity/comments/16j5ozp/byoru_lucy_set_2_part_33/)
@@ -41,9 +39,9 @@
 * Byoru - Inori Yuzuriha
     * [Byoru - Inori Yuzuriha Part 1](https://www.reddit.com/r/CentralNudity/comments/14pg73u/byoru_inori_yuzuriha_part_i/)
 * Byoru - Mitsuri Kanroji
-  * [Byoru - Mitsuri Kanroji Part 1](https://www.reddit.com/r/CentralNudity/comments/14t7m1o/byoru_mitsuri_kanroji_part_i/)
-  * [Byoru - Mitsuri Kanroji Part 2](https://www.reddit.com/r/CentralNudity/comments/153hheo/byoru_mitsuri_kanroji_part_ii/)
-  * [Byoru - Mitsuri Kanroji Part 3]()
+    * [Byoru - Mitsuri Kanroji Part 1](https://www.reddit.com/r/CentralNudity/comments/14t7m1o/byoru_mitsuri_kanroji_part_i/)
+    * [Byoru - Mitsuri Kanroji Part 2](https://www.reddit.com/r/CentralNudity/comments/153hheo/byoru_mitsuri_kanroji_part_ii/)
+    * [Byoru - Mitsuri Kanroji Part 3]()
 * Byoru - Byoru - Emma Xmas
-  * [Byoru - Emma Xmas Part 1](https://www.reddit.com/r/CentralNudity/comments/14sh89v/byoru_emma_xmas_part_i/)
-  * [Byoru - Emma Xmas Part 2](https://www.reddit.com/r/CentralNudity/comments/14x2lqi/byoru_emma_xmas_part_ii/)
+    * [Byoru - Emma Xmas Part 1](https://www.reddit.com/r/CentralNudity/comments/14sh89v/byoru_emma_xmas_part_i/)
+    * [Byoru - Emma Xmas Part 2](https://www.reddit.com/r/CentralNudity/comments/14x2lqi/byoru_emma_xmas_part_ii/)
